@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 192.168.9.99kj@gmail.com
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: My Perfect day start with < and end with />
--->
